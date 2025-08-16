@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning app development 
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me shadowlegendary678@gmail.com
-- 😄 Pronouns: 🙃🙃😉
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: if you ......
 
 <!---
